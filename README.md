@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @earlyEarl0 Omobude
+- 👀 I’m interested in Web Development
+- 🌱 I’m currently learning Web Development
+- 💞️ I’m looking to collaborate on Nothing Yet
+- 📫 How to reach me omobudesurveyshit@gmail.com
